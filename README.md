@@ -1,2 +1,1 @@
 # NikhilOli.github.io
-*\ Nikhil /*
